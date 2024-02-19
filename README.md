@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bug333111.
 - 👀 I’m interested in developing stuff.
-- 🌱 I’m currently learning more abour UI
+- 🌱 I’m currently learning more about UI
 - 💞️ I’m looking to collaborate on others projects.
 - 📫 How to reach me: Discord - @bug333111
 - 😄 Pronouns: He/Him
